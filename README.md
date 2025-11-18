@@ -1,1 +1,1 @@
-# FirstProject
+# FirstProject - Жданович Вероника
